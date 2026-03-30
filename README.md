@@ -36,3 +36,6 @@ Please Note:
 
 These summaries are simplified for demonstration purposes and should not be relied upon as legal advice.
 
+Download the case summary.pdf file to view: 
+https://drive.google.com/file/d/1dYOEJTWs4YqqOse_UbeJLNz2vlqRATv5/view?usp=drive_link
+https://drive.google.com/file/d/1lgiUnJz9OMQbKlQuZNGuTlWI_tLqm2H6/view?usp=drive_link
